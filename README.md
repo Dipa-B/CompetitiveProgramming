@@ -1,1 +1,1 @@
-# CompetitiveProgramming
+# COMPETETIVE-PROGRAMMING-CLASS-WORK-
